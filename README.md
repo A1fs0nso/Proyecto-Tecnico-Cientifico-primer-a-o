@@ -1,1 +1,1 @@
-# Proyecto-Tecnico-Cientifico-primer-a-o
+# Proyecto-Tecnico-Cientifico-primer-año
